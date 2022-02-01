@@ -1,1 +1,0 @@
-# yanosolutions.github.io
